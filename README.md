@@ -1,5 +1,5 @@
 # Artemis
-Artemis leaked get rekt lmfao. Coming out soon 06/2022
+Artemis leaked get rekt lmfao. Coming out at 30 github stars
 
 
 ## Proof:
