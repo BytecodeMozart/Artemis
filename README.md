@@ -1,5 +1,7 @@
 # Artemis
-Artemis leaked get rekt lmfao. Coming out at 30 github stars
+Artemis leaked get rekt lmfao. Coming out at 30 github stars. 
+
+Update: wasnt expecting it to be so fast. gimme 1 week to clean up the mess i made
 
 
 ## Proof:
