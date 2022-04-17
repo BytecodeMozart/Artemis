@@ -2,7 +2,7 @@
 Artemis leaked get rekt lmfao. Coming out at 30 github stars. 
 
 Update: wasnt expecting it to be so fast. gimme 1 week to clean up the mess i made
-
+Update 2: Lmfaooooooo this dumfuc thinks its fake bro i dumped classes from ur source why you capping so hard
 
 ## Proof:
 
